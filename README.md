@@ -1,4 +1,3 @@
-Here’s a more polished and visually appealing version of your content:  
 
 ---
 
